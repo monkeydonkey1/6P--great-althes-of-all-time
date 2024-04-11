@@ -1,1 +1,0 @@
-# 6P--great-althes-of-all-time
